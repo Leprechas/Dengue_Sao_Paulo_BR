@@ -1,1 +1,1 @@
-# Dengue_S-o_Paulo
+# Dengue_São_Paulo
